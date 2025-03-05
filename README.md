@@ -1,4 +1,4 @@
-### Hi there 👋
+## Hi there 👋
 ### Two bakas are staring at each other
 ### 有两个笨蛋在对视
 
